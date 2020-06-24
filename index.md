@@ -6,3 +6,7 @@ Hermine Granger ist ein Charakter aus der Buchreihe "Harry Potter". Sie ist die 
 * strebsam
 * mutig
 
+> It's LeviOsa not LeviosA
+
+<img src="https://wallup.net/wp-content/uploads/2016/05/02/78416-Emma_Watson-women-blonde-brown_eyes-Harry_Potter-Hermione_Granger.jpg"/>
+
